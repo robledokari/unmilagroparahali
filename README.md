@@ -1,6 +1,6 @@
 ## Un milagro para HALI
 
-<img src="Hali.jpg" width="200">
+![Image](Hali.jpg)
 
 Mi nombre es HALI LARA TEJEDA creo en DIOS, soy originaria de Tételes de Ávila Castillo Puebla y tengo 9 años, solía ser una niña que iba a la escuela, jugaba, cantaba, bailaba y lo que más me gustaba era estar en casa con mis papás y mis hermanitas, el 3 de mayo de 2019 mi mami me hizo unos estudios de sangre porque me sentía cansada, estábamos comprando mi piñata porque el 5 de mayo era mi cumpleaños número 9, de pronto mi mami recibió los resultados por correo electrónico y la vi llorando con mucho, mucho dolor como nunca la había visto llorar, ese 3 de mayo marcó el inicio de la enfermedad con la que hasta el día de hoy sigo luchando.
 
