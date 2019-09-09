@@ -12,10 +12,12 @@ Tengo tantos sueños que cumplir, lo último que existe en el mundo para poder s
 
 A pesar de todo lo que he tenido que pasar no me rindo quiero seguir luchando para sanar ayúdame por favor a lograrlo necesito de ustedes. Un día mi papi me dijo ¿sabes porque sigue funcionando este mundo mi amor a pesar de tantas cosas difíciles? porque aún existe más gente buena que mala, y así lo creo.
 
+### [Facebook](https://www.facebook.com/Un-milagro-para-HALI-102568124460146/)
+
 ### Ayuda
 
 ![Image](AyudaHali.png)
 
-[### Facebook](https://www.facebook.com/Un-milagro-para-HALI-102568124460146/)
+
 
 
